@@ -1,1 +1,1 @@
-# resume
+# [Resume](/EvanSmedley_Resume.pdf)
